@@ -1,7 +1,4 @@
 
-lol
-XD
-
 wow
 
 aaaaaaaaaaaaaaaaaaaaaaaaaaa
